@@ -6,6 +6,6 @@
 - 🤔 Likes to research different blockchain projects and have a basic knowledge of the fundamentals of
 crypto trading
 - 💬  A community person who loves to build, engage and embrace communities. Successfully built and managed a community of over 500 creators and traders, organized events and workshops, and increased brand awareness through online advertising and marketing. 
-- 📫 How to reach me: yatharthjain69@gmail.com
+- 📫 How to reach me: yatharthjain3@gmail.com
 - 😄 Pronouns: he/him 
 - ⚡ Fun fact: Loves eating sandwiches.
